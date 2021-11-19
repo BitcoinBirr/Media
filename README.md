@@ -60,3 +60,5 @@
 > 
 > [Cryptocurrency & related technologies with Kal Kassa | ክሪፕቶ ከረንሲ እና ትጓዳኝ ቴክኖሎጂዎች - Habesha in Tech, YouTube (T. Kassa)](https://www.youtube.com/watch?v=z6NcFJyZTGc)
 > 
+> [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
+> 
