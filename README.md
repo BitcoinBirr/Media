@@ -64,6 +64,6 @@
 >
 > [Why Are We Bullish (Kal Kassa, Chris Smith, Pierre Corbin, Ben Gagnon) - YouTube (BTC Sessions)](https://youtu.be/-SgKjwzVy5U)
 > 
-> [Episode 12: Satoshi is Ethiopian, Progressive Bitcoiner - YouTube (Mark Stephany)](https://theprogressivebitcoiner.com/episode-12-satoshi-is-ethiopian-with-kal-kassa/)
+> [Episode 12: Satoshi is Ethiopian with Kal Kassa, Progressive Bitcoiner - YouTube (Mark Stephany)](https://theprogressivebitcoiner.com/episode-12-satoshi-is-ethiopian-with-kal-kassa/)
 >
 > [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
