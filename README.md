@@ -61,5 +61,9 @@
 > [Cryptocurrency & related technologies with Kal Kassa | ክሪፕቶ ከረንሲ እና ትጓዳኝ ቴክኖሎጂዎች - Habesha in Tech, YouTube (T. Kassa)](https://www.youtube.com/watch?v=z6NcFJyZTGc)
 > 
 > [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
+>
+> [Why Are We Bullish (Kal Kassa, Chris Smith, Pierre Corbin, Ben Gagnon) - YouTube (BTC Sessions)](https://youtu.be/-SgKjwzVy5U)
 > 
-> [Bitcoin 101, Flawless Events - Hyatt Regency (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
+> [Episode 12: Satoshi is Ethiopian, Progressive Bitcoiner - YouTube (Mark Stephany)](https://theprogressivebitcoiner.com/episode-12-satoshi-is-ethiopian-with-kal-kassa/)
+>
+> [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
