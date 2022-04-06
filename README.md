@@ -62,3 +62,4 @@
 > 
 > [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
 > 
+> [Bitcoin 101, Flawless Events - Hyatt Regency (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
