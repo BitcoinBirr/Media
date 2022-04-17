@@ -64,6 +64,13 @@
 >
 > [Why Are We Bullish (Kal Kassa, Chris Smith, Pierre Corbin, Ben Gagnon) - YouTube (BTC Sessions)](https://youtu.be/-SgKjwzVy5U)
 > 
-> [Episode 12: Satoshi is Ethiopian with Kal Kassa, Progressive Bitcoiner - YouTube (Mark Stephany)](https://theprogressivebitcoiner.com/episode-12-satoshi-is-ethiopian-with-kal-kassa/)
+> [Episode 12: Satoshi is Ethiopian with Kal Kassa, Progressive Bitcoiner - YouTube (M. Stephany)](https://theprogressivebitcoiner.com/episode-12-satoshi-is-ethiopian-with-kal-kassa/)
+>
+> [Ethiopia's Best Chance at Adopting Bitcoin, BTC Times (A. Kohnhorst)](https://www.btctimes.com/news/ethiopias-best-chance-at-adopting-bitcoin)
 >
 > [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
+>
+> [Life By Design with Kal Kassa (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
+>
+> [Bitcoin is Freedom - Bitcoin 2022 Conference (Bitcoin Magazine)](https://www.youtube.com/watch?v=cR4sMsI8z7U&feature=youtu.be)
+>
