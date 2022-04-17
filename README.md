@@ -70,7 +70,7 @@
 >
 > [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
 >
-> [Life By Design with Kal Kassa (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
+> [Life By Design with Kal Kassa - LinkUp (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
 >
 > [Bitcoin is Freedom - Bitcoin 2022 Conference (Bitcoin Magazine)](https://www.youtube.com/watch?v=cR4sMsI8z7U&feature=youtu.be)
 >
