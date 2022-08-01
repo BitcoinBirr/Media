@@ -6,15 +6,7 @@
 > 
 > [@BitcoinBirr, Twitter](https://twitter.com/BitcoinBirr)
 > 
-> [@BitcoinNakfa, Twitter](https://twitter.com/BitcoinNakfa)
-> 
-> [@AfricanSatoshi, Twitter](https://twitter.com/AfricanSatoshi)
-> 
-> [@NYTimechains, Twitter](https://twitter.com/NYTimechains)
-> 
 > [BitcoinBirr, Telegram](https://t.me/bitcoinbirr)
-> 
-> [BitcoinNakfa, Telegram](https://t.me.bitcoinnakfa)
 > 
 > [BitcoinBirr, LinkedIn](https://www.linkedin.com/company/bitcoinbirr-org)
 > 
@@ -23,8 +15,6 @@
 > [Learning Resource, Qala.Dev](https://qala.dev/)
 > 
 > [Learning Resource, Summer of Bitcoin](https://summerofbitcoin.org/)
-> 
-> [Africa Trading Volume, Useful Tulips](https://www.usefultulips.org/combined_ETB_Page.html)
 > 
 > [Shitcoin Millionaire, Medium (K. Kassa)](https://kalkassa.medium.com/shitcoin-millionaire-cardano-in-ethiopia-d81273d02eff)
 > 
@@ -37,6 +27,8 @@
 > [Check Your Financial Privilege, Bitcoin Magazine (A. Gladstein)](https://bitcoinmagazine.com/culture/check-your-financial-privilege)
 > 
 > [The Marathon - Ethiopia and Bitcoin, Bitcoin Magazine (K. Kassa)](https://bitcoinmagazine.com/culture/the-marathon-ethiopia-and-bitcoin)
+>
+> [The Bitcoin Revolution in Africa: Explained (Power Laws: Bitcoin Documentaries)](https://www.youtube.com/watch?v=r7lm7IHnKDw)
 > 
 > [Financial Inclusion - BitcoinBirr and BitcoinNakfa with Kal Kassa (S. Gomez/Fleury)](https://anchor.fm/fosterinclusion/episodes/Episode-8-Financial-Inclusion---Bitcoin-Birr--Bitcoin-Nakfa-with-Kal-Kassa-e14o15d)
 > 
