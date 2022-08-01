@@ -74,7 +74,7 @@
 >
 > [Bitcoin is Freedom - Bitcoin 2022 Conference (Bitcoin Magazine)](https://www.youtube.com/watch?v=cR4sMsI8z7U&feature=youtu.be)
 >
-> [የአባቶች ቀን ልዩ እንግዳ.... ተወዳጁ ሰለሞን ካሳ … ከጠ/ ሚ ዶክተር አብይ ጋር ያስተዋወቀን (Seifu on EBS)](https://www.youtube.com/watch?v=irTaneoGfLE&t=785s0
+> [የአባቶች ቀን ልዩ እንግዳ.... ተወዳጁ ሰለሞን ካሳ … ከጠ/ ሚ ዶክተር አብይ ጋር ያስተዋወቀን (Seifu on EBS)](https://www.youtube.com/watch?v=irTaneoGfLE&t=785s0)
 >
 > [A Sovereign Education, Medium (K.Kassa)](https://kalkassa.medium.com/a-sovereign-education-2ec7ef38b3a1)
 >
