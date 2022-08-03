@@ -70,3 +70,4 @@
 >
 > [A Sovereign Education, Medium (K.Kassa)](https://kalkassa.medium.com/a-sovereign-education-2ec7ef38b3a1)
 >
+> [Bitcoin Advocacy with Kal Kassa, YouTube (Superlunar)](https://www.youtube.com/watch?v=WRcNgbV9Bj8&t=9s)
