@@ -62,7 +62,7 @@
 >
 > [Ethiopia's Best Chance at Adopting Bitcoin, BTC Times (A. Kohnhorst)](https://www.btctimes.com/news/ethiopias-best-chance-at-adopting-bitcoin)
 >
-> [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
+> [🇪 Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
 >
 > [Life By Design with Kal Kassa - LinkUp (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
 >
