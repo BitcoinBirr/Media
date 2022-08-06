@@ -51,6 +51,8 @@
 > [Bitcoin in Ethiopia with @KalKassa, A Boy Named Pseu (P. Gibson)](https://mrpseu.podbean.com/)
 > 
 > [Cryptocurrency & related technologies with Kal Kassa | ክሪፕቶ ከረንሲ እና ትጓዳኝ ቴክኖሎጂዎች - Habesha in Tech, YouTube (T. Kassa)](https://www.youtube.com/watch?v=z6NcFJyZTGc)
+>
+> [Bitcoin in Sudan 🇸🇩 and Ethiopia 🇪🇹 with SudanHODL and Kal Kassa, SoundCloud (Global Bitcoin Fest)](https://soundcloud.com/user-78867804-972462309/2-3-pm-bitcoin-in-sudan-and-ethiopia-with-sudanhodl-and-kal-kassa-eng?in=user-78867804-972462309/sets/global-bitcoin-fest-2021&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 > 
 > [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
 >
