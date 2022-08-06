@@ -52,7 +52,7 @@
 > 
 > [Cryptocurrency & related technologies with Kal Kassa | ክሪፕቶ ከረንሲ እና ትጓዳኝ ቴክኖሎጂዎች - Habesha in Tech, YouTube (T. Kassa)](https://www.youtube.com/watch?v=z6NcFJyZTGc)
 >
-> [Bitcoin in Sudan 🇸🇩 and Ethiopia 🇪🇹 with SudanHODL and Kal Kassa, SoundCloud (Global Bitcoin Fest)](https://soundcloud.com/user-78867804-972462309/2-3-pm-bitcoin-in-sudan-and-ethiopia-with-sudanhodl-and-kal-kassa-eng?in=user-78867804-972462309/sets/global-bitcoin-fest-2021&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+> [2-3 pm - Bitcoin in Sudan 🇸🇩 and Ethiopia 🇪🇹 with SudanHODL and Kal Kassa, SoundCloud (Global Bitcoin Fest)](https://soundcloud.com/user-78867804-972462309/2-3-pm-bitcoin-in-sudan-and-ethiopia-with-sudanhodl-and-kal-kassa-eng?in=user-78867804-972462309/sets/global-bitcoin-fest-2021&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 > 
 > [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
 >
@@ -69,6 +69,8 @@
 > [Bitcoin is Freedom - Bitcoin 2022 Conference (Bitcoin Magazine)](https://www.youtube.com/watch?v=cR4sMsI8z7U&feature=youtu.be)
 >
 > [የአባቶች ቀን ልዩ እንግዳ.... ተወዳጁ ሰለሞን ካሳ … ከጠ/ ሚ ዶክተር አብይ ጋር ያስተዋወቀን (Seifu on EBS)](https://www.youtube.com/watch?v=irTaneoGfLE&t=785s0)
+>
+>[2022-07-03 - meet the Ethiopia 🇪🇹 Bitcoin community, SoundCloud (Global Bitcoin Fest)](https://soundcloud.com/user-78867804-972462309/2022-07-03-meet-the-ethiopia-bitcoin-community)
 >
 > [A Sovereign Education, Medium (K.Kassa)](https://kalkassa.medium.com/a-sovereign-education-2ec7ef38b3a1)
 >
