@@ -9,6 +9,8 @@
 > [BitcoinBirr, Telegram](https://t.me/bitcoinbirr)
 > 
 > [BitcoinBirr, LinkedIn](https://www.linkedin.com/company/bitcoinbirr-org)
+>
+> [BitcoinBirr, Instagram](https://www.instagram.com/bitcoinbirr/)
 > 
 > [Learning Resource, Hello Bitcoin](https://hellobitco.in/)
 > 
