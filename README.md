@@ -76,4 +76,6 @@
 >
 > [A Sovereign Education, Medium (K.Kassa)](https://kalkassa.medium.com/a-sovereign-education-2ec7ef38b3a1)
 >
+> [Altcoins like Cardano are Here to Steal Your Bitcoin: Bitconer's Guide Episode 22 - YouTube (Meme Factory TM)](https://www.youtube.com/watch?v=cwSdgpA3iOQ&t=1309s)
+>
 > [Bitcoin Advocacy with Kal Kassa, YouTube (Superlunar)](https://www.youtube.com/watch?v=WRcNgbV9Bj8&t=9s)
