@@ -80,4 +80,4 @@
 >
 > [Bitcoin Advocacy with Kal Kassa, YouTube (Superlunar)](https://www.youtube.com/watch?v=WRcNgbV9Bj8&t=9s)
 > 
-> [110 Million Bitcoiners in Ethiopia? : Bitcoiner's Guide Episode 26 w/ @Kal Kassa - YouTube (Meme Factor TM)](https://www.youtube.com/watch?v=SPpTa6GxgrA)
+> [110 Million Bitcoiners in Ethiopia? : Bitcoiner's Guide Episode 26 w/ @Kal Kassa - YouTube (Meme Factor TM)](https://www.youtube.com/watch?v=SPpTa6GxgrA) 
