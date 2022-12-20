@@ -83,3 +83,6 @@
 > [110 Million Bitcoiners in Ethiopia? : Bitcoiner's Guide Episode 26 w/ @Kal Kassa - YouTube (Meme Factory TM)](https://www.youtube.com/watch?v=SPpTa6GxgrA) 
 > 
 > [Black Blockchain Summit: Unlocking Access - YouTube (I Love Black People)](https://www.youtube.com/watch?v=wQSHC3OGMDs&t=774s)
+>
+> [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
+
