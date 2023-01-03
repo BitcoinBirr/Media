@@ -85,4 +85,5 @@
 > [Black Blockchain Summit: Unlocking Access - YouTube (I Love Black People)](https://www.youtube.com/watch?v=wQSHC3OGMDs&t=774s)
 >
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
-
+>
+> [Recounting Ethiopia's Bitcoin Developments in 2022, Bitcoin Magazine (K.Kassa)](https://bitcoinmagazine.com/culture/in-2022-ethiopia-began-embracing-bitcoin)
