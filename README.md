@@ -87,3 +87,5 @@
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
 >
 > [Recounting Ethiopia's Bitcoin Developments in 2022, Bitcoin Magazine (K.Kassa)](https://bitcoinmagazine.com/culture/in-2022-ethiopia-began-embracing-bitcoin)
+>
+>[Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, The Bitcoin Source - YouTube (Dawdu) ](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
