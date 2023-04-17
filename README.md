@@ -7,10 +7,6 @@
 > [@BitcoinBirr, Twitter](https://twitter.com/BitcoinBirr)
 > 
 > [BitcoinBirr, Telegram](https://t.me/bitcoinbirr)
-> 
-> [BitcoinBirr, LinkedIn](https://www.linkedin.com/company/bitcoinbirr-org)
->
-> [BitcoinBirr, Instagram](https://www.instagram.com/bitcoinbirr/)
 >
 > 2021
 >
