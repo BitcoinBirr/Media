@@ -11,13 +11,9 @@
 > [BitcoinBirr, LinkedIn](https://www.linkedin.com/company/bitcoinbirr-org)
 >
 > [BitcoinBirr, Instagram](https://www.instagram.com/bitcoinbirr/)
-> 
-> [Learning Resource, Hello Bitcoin](https://hellobitco.in/)
-> 
-> [Learning Resource, Qala.Dev](https://qala.dev/)
-> 
-> [Learning Resource, Summer of Bitcoin](https://summerofbitcoin.org/)
-> 
+>
+> 2021
+>
 > [Shitcoin Millionaire, Medium (K. Kassa)](https://kalkassa.medium.com/shitcoin-millionaire-cardano-in-ethiopia-d81273d02eff)
 > 
 > [Number of User Go Up, Lightning Labs (R. Gentry)](https://lightninglabs.substack.com/p/number-of-users-go-up-bitcoin-is)
@@ -35,8 +31,6 @@
 > [Financial Inclusion - BitcoinBirr and BitcoinNakfa with Kal Kassa (S. Gomez/Fleury)](https://anchor.fm/fosterinclusion/episodes/Episode-8-Financial-Inclusion---Bitcoin-Birr--Bitcoin-Nakfa-with-Kal-Kassa-e14o15d)
 > 
 > [The Promised Land with Kal Kassa (Ethiopia) - One Love Bitcoin, YouTube (B. Dread)](https://www.youtube.com/watch?v=Y2LieS43mVA)
-> 
-> [Dead Aid, Why Aid Is Not Working and How There Is a Better Way for Africa (D. Moyo)](https://dambisamoyo.com/book/dead-aid/)
 > 
 > [The Lightning Network Is Going to Change How You Think About Bitcoin, Coindesk (J. Wiser)](https://www.coindesk.com/lightning-network-how-you-think-about-bitcoin)
 > 
@@ -57,6 +51,8 @@
 > [2-3 pm - Bitcoin in Sudan 🇸🇩 and Ethiopia 🇪🇹 with SudanHODL and Kal Kassa, SoundCloud (Global Bitcoin Fest)](https://soundcloud.com/user-78867804-972462309/2-3-pm-bitcoin-in-sudan-and-ethiopia-with-sudanhodl-and-kal-kassa-eng?in=user-78867804-972462309/sets/global-bitcoin-fest-2021&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 > 
 > [Bitcoin in the Developing World, Bitcoin Academy - YouTube (Human Rights Foundation)](https://youtu.be/3YbkdH5ubZ0?t=979)
+>
+> 2022
 >
 > [Why Are We Bullish (Kal Kassa, Chris Smith, Pierre Corbin, Ben Gagnon) - YouTube (BTC Sessions)](https://youtu.be/-SgKjwzVy5U)
 > 
@@ -87,5 +83,7 @@
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
 >
 > [Recounting Ethiopia's Bitcoin Developments in 2022, Bitcoin Magazine (K.Kassa)](https://bitcoinmagazine.com/culture/in-2022-ethiopia-began-embracing-bitcoin)
+> 
+> 2023
 >
 >[Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, Dawdu - YouTube (The Bitcoin Source) ](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
