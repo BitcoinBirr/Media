@@ -82,4 +82,8 @@
 > 
 > 2023
 >
->[Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, Dawdu - YouTube (The Bitcoin Source) ](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
+>[Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, Dawdu - YouTube (The Bitcoin Source)](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
+>
+> [Interview with Kal Kassa - Fountain (Tokyo Citadel Builders)](https://fountain.fm/episode/wMbyZfkuWymEJNoeGQlp)
+>
+> [Empowering Africa through Bitcoin: A Conversation with Kal Kassa - YouTube (African Gold Growers Academy)](https://www.youtube.com/watch?v=2QBoLhYmCfo&t=488s)
