@@ -58,7 +58,7 @@
 >
 > [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
 >
-> [Cardano: Social Credit Scores For Kids - YouTube (Bitcoin University)(https://www.youtube.com/watch?v=1STIeWSv0CE)]
+> [Cardano: Social Credit Scores For Kids, YouTube (Bitcoin University)](https://www.youtube.com/watch?v=1STIeWSv0CE)
 >
 > [Life By Design with Kal Kassa - LinkUp (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
 >
