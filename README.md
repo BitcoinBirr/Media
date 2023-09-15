@@ -78,7 +78,7 @@
 > 
 > [Black Blockchain Summit: Unlocking Access - YouTube (I Love Black People)](https://www.youtube.com/watch?v=wQSHC3OGMDs&t=774s)
 >
-> [Cardano Guy Says Turn Off Bitcoin - YouTube (Bitcoin University)(https://www.youtube.com/watch?v=Xb0vNZcrqU0)]
+> [Cardano Guy Says Turn Off Bitcoin - YouTube (Bitcoin University)](https://www.youtube.com/watch?v=Xb0vNZcrqU0).
 >
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
 >
