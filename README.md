@@ -58,6 +58,8 @@
 >
 > [Bitcoin 101, Flawless Events - YouTube (K. Kassa)](https://youtu.be/Wf0PQMwfVT8)
 >
+> [Cardano: Social Credit Scores For Kids - YouTube (Bitcoin University)(https://www.youtube.com/watch?v=1STIeWSv0CE)]
+>
 > [Life By Design with Kal Kassa - LinkUp (A. Abraham)](https://linkupaddis.com/listen/detail/life-by-design)
 >
 > [Bitcoin is Freedom - Bitcoin 2022 Conference (Bitcoin Magazine)](https://www.youtube.com/watch?v=cR4sMsI8z7U&feature=youtu.be)
@@ -75,6 +77,8 @@
 > [110 Million Bitcoiners in Ethiopia? : Bitcoiner's Guide Episode 26 w/ @Kal Kassa - YouTube (Meme Factory TM)](https://www.youtube.com/watch?v=SPpTa6GxgrA) 
 > 
 > [Black Blockchain Summit: Unlocking Access - YouTube (I Love Black People)](https://www.youtube.com/watch?v=wQSHC3OGMDs&t=774s)
+>
+> [Cardano Guy Says Turn Off Bitcoin - YouTube (Bitcoin University)(https://www.youtube.com/watch?v=Xb0vNZcrqU0)]
 >
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
 >
