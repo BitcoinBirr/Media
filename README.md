@@ -91,3 +91,6 @@
 > [Interview with Kal Kassa - Fountain (Tokyo Citadel Builders)](https://fountain.fm/episode/wMbyZfkuWymEJNoeGQlp)
 >
 > [Empowering Africa through Bitcoin: A Conversation with Kal Kassa - YouTube (African Gold Growers Academy)](https://www.youtube.com/watch?v=2QBoLhYmCfo&t=488s)
+> 
+> [Bitcoin Adoption in Ethiopia with Kal Kassa - YouTube (F. Corva)](https://youtu.be/tYgWt3JeHQM)
+
