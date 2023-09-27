@@ -72,13 +72,13 @@
 >
 > [Altcoins like Cardano are Here to Steal Your Bitcoin: Bitconer's Guide Episode 22 - YouTube (Meme Factory TM)](https://www.youtube.com/watch?v=cwSdgpA3iOQ&t=1309s)
 >
-> [Bitcoin Advocacy with Kal Kassa, YouTube (Superlunar)](https://www.superlunar.com/post/bitcoin-advocacy-with-kal-kassa))
+> [Bitcoin Advocacy with Kal Kassa, YouTube (Superlunar)](https://www.superlunar.com/post/bitcoin-advocacy-with-kal-kassa)
 > 
 > [110 Million Bitcoiners in Ethiopia? : Bitcoiner's Guide Episode 26 w/ @Kal Kassa - YouTube (Meme Factory TM)](https://www.youtube.com/watch?v=SPpTa6GxgrA) 
 > 
 > [Black Blockchain Summit: Unlocking Access - YouTube (I Love Black People)](https://www.youtube.com/watch?v=wQSHC3OGMDs&t=774s)
 >
-> [Cardano Guy Says Turn Off Bitcoin - YouTube (Bitcoin University)](https://www.youtube.com/watch?v=Xb0vNZcrqU0).
+> [Cardano Guy Says Turn Off Bitcoin - YouTube (Bitcoin University)](https://www.youtube.com/watch?v=Xb0vNZcrqU0)
 >
 > [The Injera Premium, Satoshi's Journal (K.Kassa)](https://satoshisjournal.com/the-injera-premium/)
 >
