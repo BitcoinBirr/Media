@@ -92,5 +92,5 @@
 >
 > [Empowering Africa through Bitcoin: A Conversation with Kal Kassa - YouTube (African Gold Growers Academy)](https://www.youtube.com/watch?v=2QBoLhYmCfo&t=488s)
 > 
-> [Bitcoin Adoption in Ethiopia with Kal Kassa - YouTube (F. Corva)](https://www.youtube.com/watch?v=tYgWt3JeHQM)
+> [Bitcoin Adoption in Ethiopia with Kal Kassa, F. Corva - YouTube (New Renaissance Capital)](https://www.youtube.com/watch?v=tYgWt3JeHQM)
 
