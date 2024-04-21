@@ -104,8 +104,6 @@
 >
 > [Bitcoin for Ethiopia - YouTube (Addis Block Podcast)](https://youtu.be/vCZIQeevmKI?si=eMXHd2cxdWPl-pun)
 >
-> [በስዊድን ሃገር የ Data Center አማካሪ - Freadam Moges | Gugut Podcast - YouTube (Gugut Podcast)](https://youtu.be/7ySbrxPx73g)
->
 > [Building with Bitcoin @ALX Ethiopia Pt1 - YouTube (Student of Bitcoin)](https://youtu.be/m4uKfT-2FEk)
 >
 > [Russia to build crypto mining hub in Africa (Russia Today)](https://www.rt.com/africa/589461-russia-crypto-mining-center-ethiopia/)
