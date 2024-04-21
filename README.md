@@ -86,11 +86,32 @@
 > 
 > 2023
 >
->[Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, Dawdu - YouTube (The Bitcoin Source)](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
+> [Ethiopia's Perspective On Bitcoin: Finance & Economics Kassa Weigh's In, Dawdu - YouTube (The Bitcoin Source)](https://www.youtube.com/watch?v=HrvWYHnmLYU&lc=UgynfnJQSNEsvV8TePJ4AaABAg)
 >
 > [Interview with Kal Kassa - Fountain (Tokyo Citadel Builders)](https://fountain.fm/episode/wMbyZfkuWymEJNoeGQlp)
 >
 > [Empowering Africa through Bitcoin: A Conversation with Kal Kassa - YouTube (African Gold Growers Academy)](https://www.youtube.com/watch?v=2QBoLhYmCfo&t=488s)
 > 
 > [Bitcoin Adoption in Ethiopia with Kal Kassa, New Renaissance Capital - YouTube (F. Corva)](https://www.youtube.com/watch?v=tYgWt3JeHQM)
-
+>
+> [Africa: The New Land of the Free, Bitcoin Magazine (F. Corva)](https://bitcoinmagazine.com/culture/africa-the-new-land-of-the-free)
+>
+> [Bitcoin mining በ ኢትዮጵያ | Kal Kassa - YouTube (Gugut Podcast)](https://youtu.be/SVUOkE2piDE)
+>
+> [Bitcoin Mining Around the World: Africa (Hashrate Index)](https://hashrateindex.com/blog/bitcoin-mining-around-the-world-africa/)
+>
+> [Building with Bitcoin @ALX Ethiopia Pt1 - YouTube (Student of Bitcoin)](https://www.youtube.com/watch?v=WXMq6KhUmJU)
+>
+> [Bitcoin for Ethiopia - YouTube (Addis Block Podcast)](https://youtu.be/vCZIQeevmKI?si=eMXHd2cxdWPl-pun)
+>
+> [በስዊድን ሃገር የ Data Center አማካሪ - Freadam Moges | Gugut Podcast - YouTube (Gugut Podcast)](https://youtu.be/7ySbrxPx73g)
+>
+> [Building with Bitcoin @ALX Ethiopia Pt1 - YouTube (Student of Bitcoin)](https://youtu.be/m4uKfT-2FEk)
+>
+> [Russia to build crypto mining hub in Africa (Russia Today)](https://www.rt.com/africa/589461-russia-crypto-mining-center-ethiopia/)
+>
+> [Ethiopian-Born Former Google Engineer Ventures into Bitcoin Mining in Ethiopia (Shega)](https://shega.co/post/ethiopian-born-former-google-engineer-ventures-into-bitcoin-mining-in-ethiopia/)
+>
+> [Bitcoin Presentation to INSA in Addis Ababa - YouTube (Kal Kassa)](https://youtu.be/YdMIqq6lV6E?si=BKRxz5Peg4tksYlg)
+>
+> [Work and Earn in Bitcoin (DevFest '23)](https://gdg.community.dev/events/details/google-gdg-addis-presents-devfest-addis-2023/)
