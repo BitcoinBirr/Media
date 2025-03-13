@@ -113,3 +113,5 @@
 > [Bitcoin Presentation to INSA in Addis Ababa - YouTube (Kal Kassa)](https://youtu.be/YdMIqq6lV6E?si=BKRxz5Peg4tksYlg)
 >
 > [Work and Earn in Bitcoin (DevFest '23)](https://gdg.community.dev/events/details/google-gdg-addis-presents-devfest-addis-2023/)
+>
+> [The State of Bitcoin Mining in Ethiopia, BitcoinBirr 03.13.2025.pdf](https://github.com/user-attachments/files/19227263/The.State.of.Bitcoin.Mining.in.Ethiopia.-.BitcoinBirr.03.13.2025.pdf)
